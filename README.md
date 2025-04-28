@@ -1,5 +1,4 @@
 # Producoes-cientificas-relacionadas-a-nocao-de-corpo
-Aqui estão disponibilizadas produções científicas que tratam da noção de corpo, abrangendo questões relacionadas aos processos de subjetivação que corroboram na fabricação dos corpos dos sujeitos.
 
 1) Disciplina e poder: breves considerações sobre a questão do corpo na filosofia de Michel Foucault: https://periodicos.ufrb.edu.br/index.php/griot/article/view/1029
 
